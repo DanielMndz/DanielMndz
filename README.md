@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DanielMndz
-- 👀 I’m interested in maribe biology
+- 👀 I’m interested in marine biology
 - 🌱 I’m currently learning about sharks
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
